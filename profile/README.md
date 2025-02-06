@@ -1,3 +1,3 @@
 ## .github
 
-Brutalista (2025)
+Oglądaj Brutalista (2025)
